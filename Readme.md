@@ -8,3 +8,5 @@ One day Jonny was riding a bike, he then stumbled upon Sally who was flying a ki
 
 Jonny - Seth Rogan
 Sally - James Franko 
+Bike - Jonah Hill
+Kite - Jonah Hill (Think the parent trap)
